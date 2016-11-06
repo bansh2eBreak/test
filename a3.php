@@ -1,0 +1,3 @@
+xxoo
+xxoo
+ooxx
